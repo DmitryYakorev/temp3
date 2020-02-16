@@ -17,4 +17,4 @@
 
    7.Code example. High education. - St-Petersburg Technical University,Experimental Nuclear Physics.
 
-   8.English. Fluently(according test - B1).+
+   8.English. Fluently(according test - B1).
